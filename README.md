@@ -1,0 +1,2 @@
+# FICHA_DE_AN-LISE_DE_CASO-_FUNDAMENTOS_-TICOS_EM_COMPUTA-O
+Trabalho de Design Profissional
